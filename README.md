@@ -1,1 +1,0 @@
-# amthna.github.io
